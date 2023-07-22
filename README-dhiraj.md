@@ -1,5 +1,5 @@
 #Dhiraj Kumbhar
-### i am computer engg. student at adypu soe pune pursing 3rd year, learning new tech with gdsc-adypu, my youtube techers and doing project in verious paltform right now A Brief Description about yourself
+### i am computer engg. student at adypu soe pune pursing 3rd year, learning new tech with gdsc-adypu, my youtube techers and doing project in verious paltform right now
 
 ## Stream - B.E.computer
 ## Why ADYPU -Because i got selected here! 
